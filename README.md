@@ -1,1 +1,1 @@
-Aspiring Data Analyst and Data Scientist
+Aspiring Data & AI Professional
